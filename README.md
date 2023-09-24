@@ -1,1 +1,1 @@
-# adithyakulkarni.github.io
+# kulkarniadithya.github.io
